@@ -25,7 +25,7 @@ $\color{#506252}{\textbf{ “ 𝘖𝘯𝘭𝘺 𝘵𝘩𝘦 𝙛𝙤𝙧𝙗𝙞
 $\color{#506252}{\textbf{Hiya!! I most commonly go by Joker, but I also go by Mika or Emil, so please do take your pick!}}$ 
 $\color{#506252}{\textbf{Hell, vary it if you want, I'm perfectly comfortable with any!}}$
 $\color{#506252}{\textbf{Im 16, agender and aroace. I go by any pronouns as well as some neos but I don't tend to list them woops}}$
-$\color{#506252}{\textbf{I'm autistic and have trouble expressing and properly utilizing my emotions - they tend to control me more than I control them most the time.}}$
+$\color{#506252}{\textbf{I'm autistic and have trouble expressing and properly utilizing my emotions - they tend to control me more than I control them.}}$
 $\color{#506252}{\textbf{For this reason, I'm pretty all over the place with my general mood. Usually I'm more than happy to keep a conversation going,}}$
 $\color{#506252}{\textbf{but I am slightly unstable, anxious, etc. as well as the fact sometimes I cant express myself properly, so please keep this in mind!!}}$
 $\color{#506252}{\textbf{On top of this, I struggle with empathy, so I'm not a good person to come for advice too unfortunately, as much as I'd LOVE to help all my friends, its}}$
