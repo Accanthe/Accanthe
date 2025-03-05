@@ -14,7 +14,7 @@ $\color{#506252}{\textbf{ “ 𝘖𝘯𝘭𝘺 𝘵𝘩𝘦 𝙛𝙤𝙧𝙗𝙞
   </p>
  
 <p align="center">
- $\color{#50809e}{\textbf{I am frankly too lazy to make this look good today, so I'll head straight to the point until I can be bothered to make this look not attrocious }}$ <br/>
+ $\color{#50809e}{\textbf{I am frankly too lazy to make this look good today, so I'll head straight to the point until I can be bothered to make this look ok }}$ <br/>
   </p>
 
 <p align="center">
