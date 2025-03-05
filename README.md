@@ -29,7 +29,7 @@ $\color{#506252}{\textbf{I'm autistic and have trouble expressing and properly u
 $\color{#506252}{\textbf{For this reason, I'm pretty all over the place with my general mood. Usually I'm more than happy to keep a conversation going,}}$
 $\color{#506252}{\textbf{but I am slightly unstable, anxious, etc. as well as the fact sometimes I cant express myself properly, so please keep this in mind!!}}$
 $\color{#506252}{\textbf{On top of this, I struggle with empathy, so I'm not a good person to come for advice too unfortunately, as much as I'd LOVE to help, its}}$
-$\color{#506252}{\textbf{something I am far from suited to, please understand!! I will listen to your woes, but don't expect much in the way of advice or a response.}}$
+$\color{#506252}{\textbf{something I am far from suited to, please understand!! I will listen to your woes, but don't expect much in the way of advice.}}$
 $\color{#506252}{\textbf{My emotional issues also mean I can be pretty overbearing at times, I apologize! I can get excited really fast over literally anything.}}$
 $\color{#506252}{\textbf{Was it obvious I kin Mika? Even putting aside the profile LMAO. I'm a heavy Mika kinnie I fear, do with that info what you will...}}$
 </p>
